@@ -1,0 +1,1 @@
+# akaryak-t_otomasyonu
